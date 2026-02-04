@@ -39,7 +39,7 @@ We may update this policy occasionally. Changes will be posted on this page.
 
 ## Contact
 
-Questions? Contact us at: mertcancibuk@icloud.com
+Questions? Contact us at: mertcibuk@gmail.com
 
 ---
 
